@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+* The Oliver Twist :heart:
+* Crime and punishment :sparkles:
+* Harry Potter series :smile:
